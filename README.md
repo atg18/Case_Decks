@@ -13,6 +13,6 @@ https://github.com/user-attachments/files/18214939/Case.Comp.1.pdf
 Students residing in Residence Halls 6 & 7 face significant challenges due to its distance from academic buildings, lack of nearby medical and essential services, and the resulting time-management stress. These issues negatively affect their well-being, academic performance, and daily routines. Create a 1 page solution deck.
 
 **Solution Deck:**
-https://github.com/user-attachments/files/18214991/case.comp.rh6.rh7.pptx.3.pdf
+https://github.com/user-attachments/files/18416974/case.comp.rh6.rh7.pptx.3.2.-5.pdf
 
 
